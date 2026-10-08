@@ -1,1 +1,1 @@
-Digital marketin
+Digital marketing
